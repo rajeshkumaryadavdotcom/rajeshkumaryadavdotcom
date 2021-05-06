@@ -17,6 +17,8 @@
 * Co-workers rely on me to be on time.
 * I delivered all projects in a timely fashion.
 
+Full bio at - https://www.rajeshkumaryadav.com/#/about
+
 <!--
 **rajeshkumaryadavdotcom/rajeshkumaryadavdotcom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
